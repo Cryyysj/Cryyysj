@@ -1,2 +1,2 @@
 # Demo
-https://Cryyysj.github.io/ForYou/
+https://cryyysj.github.io/Cryyysj/
