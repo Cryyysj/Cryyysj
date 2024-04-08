@@ -1,2 +1,2 @@
 # Demo
-https://dzareldeveloper.github.io/ForYou/
+https://Cryyysj.github.io/ForYou/
